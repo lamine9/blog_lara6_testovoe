@@ -1,0 +1,1 @@
+# blog_lara6_testovoe
